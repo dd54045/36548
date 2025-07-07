@@ -20,4 +20,4 @@
 
 如果你正在寻找一个值得长期信赖的日本AV免费入口，欢迎收藏本页。我们每天更新、永久免费、界面纯净，是你探索日本成人影片世界的首选平台。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd54045/36548 ）</span>
